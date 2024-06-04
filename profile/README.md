@@ -2,6 +2,10 @@
 
 GRATIS. Portugal x Finlândia em amistoso: onde assistir ao vivo e horário, Seleção portuguesa conta com o desfalque de Cristiano Ronaldo. Jogo tem transmissão do sportv.
 
+<strong> 🔴📺TRANSMISSÃO📲👉 <a href="https://onlinestreamshd.com/friendly/" rel="nofollow"> PORTUGAL X FINLÂNDIA AO VIVO ONLINE </a> </strong>
+
+<strong> 🔴📺TRANSMISSÃO📲👉️ <a href="https://onlinestreamshd.com/friendly/" rel="nofollow"> PORTUGAL X FINLÂNDIA AO VIVO ONLINE </a> </strong>
+
 Portugal e Finlândia se enfrentam nesta terça-feira, em amistoso de preparação para a Eurocopa, que começa no dia 14 de junho. A bola rola às 15h45 (de Brasília), no Estádio José Alvalade, em Lisboa. A partida tem transmissão do sportv e acompanhamento em tempo real no ge.
 
 A seleção portuguesa tem três desfalques para esta partida. Cristiano Ronaldo e Rúben Neves, que estiveram na final da Copa do Rei Saudita, na sexta-feira passada, ganharam uma semana de folga e devem estar em campo apenas contra a Croácia, no próximo sábado, no último amistoso antes da estreia na Euro. Otávio foi cortado e deu lugar a Matheus Nunes na lista.
